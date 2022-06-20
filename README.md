@@ -1,2 +1,2 @@
 # ekzaman
-#sdau
+#sdau hotyabi 20 ballov please
